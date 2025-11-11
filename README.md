@@ -1,4 +1,4 @@
-# STN آرکائیو – Shalamar Television Network (1990-2005)  
+# STN Archive – Shalamar Television Network (1990-2005)  
 
 **Pakistan's First Semi-Private TV Revolution**  
 **پاکستان کا پہلا نجی ٹیلی وژن نیٹ ورک**  
